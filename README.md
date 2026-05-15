@@ -27,3 +27,4 @@ Coming soon...
 
 ## Contact
 - GitHub: https://github.com/Maugustin18->
+- Email: vermeiucmihai123@gmail.com ->
